@@ -8,3 +8,4 @@ https://doi.org/10/gf5m7f.
 * more informative triggers
 
 
+Note: the cirquedusoleil.mp4 file is only a link/placeholder, you've to get your DVD/BR/digital copy and put it in the right place 
